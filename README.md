@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/adobe-substance-3d-painter-v12-1-0/
 Product Price : 203 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
